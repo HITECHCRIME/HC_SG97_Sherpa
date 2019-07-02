@@ -33,3 +33,7 @@ notorious area - Kun Bu Icefall
 buried beneath
 crevice, cargo 
 most dangerous job on earth
+
+paved with ice
+only way is up
+daily sacrifice
