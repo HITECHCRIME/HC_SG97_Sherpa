@@ -27,16 +27,19 @@ laid with ice
 getting - worn out 
 daily sacrifice's callin' 
 so you better - own that
-own that
 
-only way's now
+(only) way's now
 throws of dice
 getting worn out 
-always lucked out
+always lucking out
 getting all the slots for a mission
 pushing them ladders vain for a reason
 off to tones of crowd always so gleeful 
-unskilled yet safe passage
+
+the unskilled will devour
+mists of the frozen
+
+making safe passage
 
 
 ```
