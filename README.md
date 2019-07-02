@@ -32,17 +32,17 @@ own that
 only way's now
 throws of dice
 getting worn out 
-always lucking out
+always luck out
 getting all the slots for a mission
 pushing them ladders vain for a reason
-off to tones of crowd so gleeful 
-
-at this ungodly hour - eyes on the
+off the tones of crowd so gleeful 
+eyes on the
 mists of the frozen
+at this ungodly hour 
 the unskilled will devour
-you better hold on
-sherpa's
-making safe passage
+you better hold on -
+sherpa's making 
+safe passage
 
 
 ```
