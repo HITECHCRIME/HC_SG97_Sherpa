@@ -26,3 +26,8 @@ Description.
 ## Notes
 sherpas (mountain workers) vs Sherpas (ethnic group)
 capitonym - words changing meaning based on their capitalization
+notorious area - Kun Bu Icefall
+40 times a day
+buried beneath
+crevice, cargo 
+most dangerous job on earth
