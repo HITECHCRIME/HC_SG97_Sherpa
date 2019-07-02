@@ -22,22 +22,20 @@ sherpa
 sherpa
 sherpa
 
-only way is up
+(only) way's up
 laid with ice
 getting - worn out 
-daily sacrifice
-callin' so you better
- - own that
- 
+daily sacrifice's callin' 
+so you better - own that
 own that
 
-only way is up
-paved with ice
-getting worn out - 
-daily sacrifice
+only way's now
+throws of dice
+getting worn out 
+always lucked out
 getting all the slots for a mission
 pushing them ladders vain for a reason
-off to the tones crowd so gleeful 
+off to tones of crowd always so gleeful 
 unskilled yet safe passage
 
 
