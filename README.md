@@ -18,22 +18,6 @@ Description.
 ## Lyrics
 
 ```
-
-
-```
-
-## Music Video
-
-
-## Notes
-sherpas (mountain workers) vs Sherpas (ethnic group)
-capitonym - words changing meaning based on their capitalization
-notorious area - Kun Bu Icefall
-40 times a day
-buried beneath
-crevice, cargo 
-most dangerous job on earth
-
 sherpa
 sherpa
 sherpa
@@ -55,3 +39,18 @@ getting all the slots for a mission
 pushing them ladders vain for a reason
 off to the tones crowd so gleeful 
 unskilled yet safe passage
+
+
+```
+
+## Music Video
+
+
+## Notes
+sherpas (mountain workers) vs Sherpas (ethnic group)
+capitonym - words changing meaning based on their capitalization
+notorious area - Kun Bu Icefall
+40 times a day
+buried beneath
+crevice, cargo 
+most dangerous job on earth
