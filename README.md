@@ -22,23 +22,26 @@ sherpa
 sherpa
 sherpa
 
-(only) way's up
+only way's up
 laid with ice
 getting - worn out 
 daily sacrifice's callin' 
-so you better - own that
+ya better - own that
+own that
 
-(only) way's now
+only way's now
 throws of dice
 getting worn out 
 always lucking out
 getting all the slots for a mission
 pushing them ladders vain for a reason
-off to tones of crowd always so gleeful 
+off to tones of crowd so gleeful 
 
-the unskilled will devour
+at this ungodly hour - eyes on the
 mists of the frozen
-
+the unskilled will devour
+you better hold on
+sherpa's
 making safe passage
 
 
