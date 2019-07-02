@@ -24,3 +24,5 @@ Description.
 
 
 ## Notes
+sherpas (mountain workers) vs Sherpas (ethnic group)
+capitonym - words changing meaning based on their capitalization
