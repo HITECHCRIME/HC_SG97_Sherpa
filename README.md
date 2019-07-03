@@ -89,6 +89,8 @@ lives are at stake
 
 
 ## Notes
+Thinking about adding like local nepal melodies in the background.
+
 sherpas (mountain workers) vs Sherpas (ethnic group)
 capitonym - words changing meaning based on their capitalization
 notorious area - Kun Bu Icefall
