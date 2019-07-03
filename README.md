@@ -96,6 +96,10 @@ lives are at stake
 + lives are at stake (crowd chant purpose)
 + ask the crowd to start tibetan hum before the song starts (impact)
 
+Mountains await
+Mountains of height 
+But I will see the light
+
 
 
 sherpas (mountain workers) vs Sherpas (ethnic group)
