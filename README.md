@@ -26,18 +26,18 @@ only way's up
 laid with ice
 getting - worn out 
 daily sacrifice's callin' 
-ya better - own that
-only way's now
+ya better - own that (own that - scream add)
+only way's now (only time's now)
 throws of dice
 pressin' onwards 
 always lucking out
-sherpa's gone now
+sherpa's gone now (onwards)
 
 getting all the slots for a mission
 pushing them ladders - vain for a reason
-off the tones of crowd so gleeful 
-eyes on the
-mists of the frozen
+off the tones of crowd so gleeful (scream add gleeful)
+eyes on the         (deeper voice)
+mists of the frozen (deeper voice)
 at this ungodly hour 
 the unskilled will devour
 the rest
@@ -57,7 +57,7 @@ only way's up            ///
 laid with ice            /// baby wise
 getting - worn out       ///
 daily sacrifice's callin'/// 
-ya better - own that     /// owe not
+ya better - own that     /// never owe that
 only way's now           /// 
 throws of dice           /// 
 pressin' onwards         /// dressing backwards
