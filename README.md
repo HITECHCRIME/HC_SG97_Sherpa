@@ -92,7 +92,11 @@ lives are at stake
 
 
 ## Notes
-Thinking about adding like local nepal melodies in the background.
++ Thinking about adding like local nepal melodies or tibetan humming in the background.
++ lives are at stake (crowd chant purpose)
++ ask the crowd to start tibetan hum before the song starts (impact)
+
+
 
 sherpas (mountain workers) vs Sherpas (ethnic group)
 capitonym - words changing meaning based on their capitalization
