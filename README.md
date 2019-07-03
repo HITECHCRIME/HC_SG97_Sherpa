@@ -54,19 +54,19 @@ lives are at stake
 -------------
 
 only way's up            ///
-laid with ice            ///
+laid with ice            /// baby wise
 getting - worn out       ///
 daily sacrifice's callin'/// 
-ya better - own that     ///
-only way's now           ///
-throws of dice           ///
-pressin' onwards         ///
-always lucking out       ///
+ya better - own that     /// owe not
+only way's now           /// 
+throws of dice           /// 
+pressin' onwards         /// dressing backwards
+always lucking out       /// threeways locking out
 sherpa's gone now        /// check us done now
 
-getting all the slots for a mission        /// 
+getting all the slots for a mission        /// of admission
 pushing them ladders - vain for a reason   ///
-off the tones of crowd so gleeful          /// xxxxx   so lethal
+off the tones of crowd so gleeful          /// xxxxx drones of skies (?) so lethal
 eyes on the                                ///
 mists of the frozen                        ///
 at this ungodly hour                       ///
