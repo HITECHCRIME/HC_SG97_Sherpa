@@ -51,6 +51,37 @@ safe passage
 
 lives are at stake
 
+-------------
+
+only way's up            ///
+laid with ice            ///
+getting - worn out       ///
+daily sacrifice's callin'/// 
+ya better - own that     ///
+only way's now           ///
+throws of dice           ///
+pressin' onwards         ///
+always lucking out       ///
+sherpa's gone now        /// check us done now
+
+getting all the slots for a mission        /// 
+pushing them ladders - vain for a reason   ///
+off the tones of crowd so gleeful          /// xxxxx   so lethal
+eyes on the                                ///
+mists of the frozen                        ///
+at this ungodly hour                       ///
+the unskilled will devour                  ///
+the rest                                   ///
+
+
+you better hold on to my crest
+hayanna
+
+sherpa's making 
+safe passage
+
+lives are at stake
+
 
 ```
 
