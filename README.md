@@ -24,7 +24,7 @@ sherpa
 
 only way's up
 laid with ice
-getting - worn out 
+gettin' - worn out 
 daily sacrifice's callin' 
 ya better - own that                      (own that - scream add)
 only way's now                            (only time's now)
@@ -41,7 +41,7 @@ off the tones of crowd
 so gleeful                                (scream add gleeful)
 eyes on the                               (deeper voice)
 mists of the frozen                       (deeper voice)
-at this ungodly hour 
+at this ungodly hour (- this unglody hour when)
 the unskilled will devour
 the rest
 
