@@ -95,6 +95,7 @@ lives are at stake
 + Thinking about adding like local nepal melodies or tibetan humming in the background.
 + lives are at stake (crowd chant purpose)
 + ask the crowd to start tibetan hum before the song starts (impact)
++ bells?
 
 Mountains await
 Mountains of height 
