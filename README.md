@@ -92,7 +92,7 @@ lives are at stake
 
 
 ## Notes
-+ Thinking about adding like local nepal melodies or tibetan humming in the background.
++ Thinking about adding like local nepal melodies or tibetan humming in the background (it should start with a hum and ice winds)
 + lives are at stake (crowd chant purpose)
 + ask the crowd to start tibetan hum before the song starts (impact)
 + bells?
