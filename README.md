@@ -110,3 +110,9 @@ notorious area - Kun Bu Icefall
 buried beneath
 crevice, cargo 
 most dangerous job on earth
+
+/// ON FIRE TODAY. IT IS A 5AM POST BUT THE DAY IS NOT FINISHED AT HELVE HQ. SONG DEALS WITH THE CONCEPT OF OUR PERSONAL SHERPAS OF LIFE.
+/// TARGET_ SHERPA
+/// STATUS_ SONG PROTOTYPE
+/// LISTEN TO REGULAR SONG DEV
+/// MICROLABEL_ @hitechcrime /// USER_ @mothnode
